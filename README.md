@@ -6,6 +6,6 @@ and authenticity in promoting a greener future.
 
 # Hack Fest
 
-<img src="./WhatsApp%20Image%202024-05-30%20at%2016.12.54_832d7b82.jpg" alt="Project Image" width="300" height="200">
+<img src="./WhatsApp%20Image%202024-05-30%20at%2016.12.54_832d7b82.jpg" alt="Project Image" width="400" height="250">
 
-### My Group Photo :
+### My Group Photo :)
