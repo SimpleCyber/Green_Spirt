@@ -4,4 +4,8 @@ With unique QR codes for trees, secure credit transfers, and government monitori
 and authenticity in promoting a greener future.
 
 
-![Hack Fest Group Photo](./WhatsApp%20Image%202024-05-30%20at%2016.12.51_5de35459.jpg)
+# Hack Fest
+
+<img src="./WhatsApp%20Image%202024-05-30%20at%2016.12.54_832d7b82.jpg" alt="Project Image" width="300" height="200">
+
+### My Group Photo :
