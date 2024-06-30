@@ -4,4 +4,4 @@ With unique QR codes for trees, secure credit transfers, and government monitori
 and authenticity in promoting a greener future.
 
 
-![Hack Fest Group Photo](./WhatsApp Image 2024-05-30 at 16.12.51_5de35459.jpg)
+![Hack Fest Group Photo](./WhatsApp%20Image%202024-05-30%20at%2016.12.51_5de35459.jpg)
